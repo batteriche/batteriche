@@ -1,4 +1,3 @@
-# 💫 About Me:
 # 💫 About Me:<br>📚I'm just a Computer Science student<br><br>🐋I'm currently working on too many things<br><br>🔃I'm still Updating the profile...
 
 
